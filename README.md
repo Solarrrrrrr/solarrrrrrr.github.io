@@ -1,1 +1,0 @@
-# solarrrrrrr.github.io
